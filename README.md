@@ -1,2 +1,1 @@
-# lsnxlzmc
-sknxlsncmx
+ss
